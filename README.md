@@ -4,6 +4,9 @@
 **Maha Mrityunjaya Yantra & Kavach for Shani-Chandra Dosha Relief**
 
 Life is not always smooth. Many times, people feel tired, worried, or scared even when they do not know the reason. Some people face health problems again and again, some see delays in work or career, and some feel mental stress every day. Even after trying hard, peace does not come easily. Such phases slowly make people feel weak from the inside.
+<img width="1250" height="720" alt="Untitled design (35)" src="https://github.com/user-attachments/assets/fff4b54e-8fa5-40b7-86db-147d59a8a9f9" />
+
+
 
 In astrology, these problems are often linked to Shani (Saturn) and Chandra (Moon). Shani brings delay, pressure, and hard life lessons. Chandra controls the mind and emotions. When both Shani and Chandra are disturbed, life feels heavy from outside and inside at the same time. Work slows down, results take time, and the mind does not stay calm. This is why many people believe in the support of Maha Mrityunjaya Yantra and Maha Mrityunjaya Kavach during such times.
 
@@ -44,6 +47,8 @@ Even when everything looks fine from the outside, the mind feels restless inside
 
 People believe that the Maha Mrityunjaya Yantra and the Maha Mrityunjaya Kavach work slowly and gently. They do not force changes but give mental strength, calmness, and protection.
 For Shani problems, they are believed to give patience and courage during long delays. For Chandra problems, they are believed to calm the mind and reduce fear and stress. Together, they help bring balance and peace in life.
+<img width="1250" height="720" alt="Untitled design (36)" src="https://github.com/user-attachments/assets/94d38120-a76a-4ad1-8acc-80d31269ff32" />
+
 
 **Where and How People Use Them**
 
